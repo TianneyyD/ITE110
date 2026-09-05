@@ -1,0 +1,3 @@
+My name is Christian H. Dumanon, and I am a student who is interested in learning new skills and exploring technology. I enjoy learning through challenges and discovering how things work.
+
+I am learning to code because I want to develop useful skills for my future and better understand how technology works. My purpose in school is to improve my coding abilities, solve problems, and gain knowledge that I can use in future studies and career opportunities.
